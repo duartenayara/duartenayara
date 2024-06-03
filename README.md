@@ -7,4 +7,4 @@
 - gosto de me reunir om os amigos
 - amo serie coreana
 - sou crista
-- 
+- amo cantar
